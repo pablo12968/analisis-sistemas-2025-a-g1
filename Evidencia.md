@@ -1,0 +1,1 @@
+file:///C:/Users/ASUS/OneDrive/Documentos/GitRepositorio/analisis-sistemas-2025-a-g1/CertificacionesCursoss.pdf
